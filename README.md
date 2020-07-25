@@ -1,5 +1,8 @@
 ![Louise Belcher being evil](https://media2.giphy.com/media/3o72FfM5HJydzafgUE/giphy.gif)
 
+
+![Birds pecking the screen](https://media3.giphy.com/media/V0E9fl9dPKWWI/giphy.gif?cid=ecf05e47531o78vb8crdvhy0rpx6pyqu1zvthqlxjgqwt1q2&rid=giphy.gif)
+
 <!--
 **grillorafael/grillorafael** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
