@@ -1,4 +1,4 @@
-### Hi there 👋
+![Louise Belcher being evil](https://media2.giphy.com/media/3o72FfM5HJydzafgUE/giphy.gif)
 
 <!--
 **grillorafael/grillorafael** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
